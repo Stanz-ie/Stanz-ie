@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Stanz-ie
-- 👀 I’m interested in cinema, sociology and everything that can help us to understand the world we live in.
+- 👀 I’m interested in cinema, sociology and everything that can help us to understand the world we live in, so it includes computer science.
 - 🌱 I’m currently learning programming 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Have you ever seen a flock of sheep using a zebra crossing ? I did ;) 
