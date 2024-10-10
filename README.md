@@ -1,5 +1,5 @@
 # 💫 About Me:
-👀 - I’m interested in cinema, sociology and everything that can help us to understand the world we live in, so it includes computer science.<br>🌱 - I’m currently learning programming<br>😄 - Pronouns: She/Her<br>⚡ - Fun fact: Have you ever seen a flock of sheep using a zebra crossing ? I did ;)
+👀 - I’m interested in cinema, sociology and everything that can help us to understand the world we live in, so it includes computer science.<br>🌱 - I’m currently learning programming<br>😄 - Pronouns: She/Her<br>⚡ - Fun fact: I love animated movies, but I cannot draw (maybe something else to learn soon) ;)
 
 
 ## 🌐 Socials:
